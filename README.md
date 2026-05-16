@@ -35,6 +35,6 @@
 
 <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/e2ca61a1-0cff-4f97-955e-2e6bbf58aca9" />
 
- - PNG By the amazing @BIRDSYSTEM-81 !!!!
+ - Sona sticker By the amazing @BIRDSYSTEM-81 !!!!
     
 <img width="740" height="287" alt="Image" src="https://github.com/user-attachments/assets/3953de5c-8bc1-4582-b111-d3b76a96f1e8" />
