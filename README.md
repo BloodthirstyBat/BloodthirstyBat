@@ -5,7 +5,8 @@
 - Hello ! Im Rory as you can see. Some call me Sirius tho!
 - I am 17 years old! I turn 18 in September.
 - I mainly go by she/they! But i really dont care what pronouns are used for me ngl.
-- Im usually at docks with friends! Or attending regi events! Its rare for me to go anywhere else ngl
+- Im usually at docks with friends! Or attending regi events! Its rare for me to go anywhere else
+- My emotions are often all over the place, sometimes im happy and sometimes upset, im also irrational at times and rather dramatic and get worked up easily.
 - And as you can see I love bats and vampires.
 
  <img width="640" height="45" alt="Image" src="https://github.com/user-attachments/assets/90de3791-6465-4712-85fe-31402a1fba0e" />
