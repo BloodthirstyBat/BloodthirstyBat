@@ -3,7 +3,7 @@
 <img width="740" height="287" alt="Image" src="https://github.com/user-attachments/assets/05729270-29cc-4b42-9bcc-7a3e39fb93c6" />
 
 - Hello ! Im Rory as you can see. Some call me Sirius tho!
-- I am 17 years old! I turn 18 in September.
+- I am 18.
 - I mainly go by she/they! But i really dont care what pronouns are used for me ngl.
 - Im usually at docks with friends! Or attending regi events! Its rare for me to go anywhere else
 - My emotions are often all over the place, sometimes im happy and sometimes upset, im also irrational at times and rather dramatic and get worked up easily.
